@@ -7,7 +7,7 @@
 ###
 
 <div align="left">
- <a href="https://ibb.co/gPHQFxD"><img src="https://i.ibb.co/gPHQFxD/naim-ahmad-picture.png" alt="naim-ahmad-picture" border="0"></a>
+<a href="https://ibb.co/5jqzGTy"><img src="https://i.ibb.co/5jqzGTy/IMG-20221104-153449.jpg" alt="IMG-20221104-153449" border="0"></a>
 </div>
 
 ###
