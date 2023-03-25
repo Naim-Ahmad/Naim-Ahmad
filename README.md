@@ -6,8 +6,8 @@
 
 ###
 
-<div align="center">
-  <img height="200" src="https://i.imgflip.com/65efzo.gif"  />
+<div align="left">
+ <a href="https://ibb.co/gPHQFxD"><img src="https://i.ibb.co/gPHQFxD/naim-ahmad-picture.png" alt="naim-ahmad-picture" border="0"></a>
 </div>
 
 ###
