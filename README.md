@@ -7,7 +7,7 @@
 ###
 
 <div align="left">
-<a href="https://ibb.co/5jqzGTy"><img src="https://i.ibb.co/5jqzGTy/IMG-20221104-153449.jpg" alt="IMG-20221104-153449" border="0"></a>
+<a href="https://ibb.co/WsYF07q"><img src="https://i.ibb.co/WsYF07q/IMG-20230707-145422.jpg" alt="IMG-20230707-145422" border="0"></a>
 </div>
 
 ###
