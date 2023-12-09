@@ -75,6 +75,6 @@
 ###
 
 <img align="left" src="https://profile-counter.glitch.me/Naim-Ahmad/count.svg?"  />
-[![](https://visitcount.itsvg.in/api?id=eliyas700&icon=5&color=3)](https://visitcount.itsvg.in)
+
 
 ###
