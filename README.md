@@ -1,3 +1,5 @@
+<h2 align="center"> 🚀 I'm Naim Ahmad, a MERN Stack developer 👨‍💻 creating bug since 2021 🚀</h2>
+
 <img src="https://i.ibb.co/N1Py31M/Naim-ahmad-MERN-stack-developer-banner-center.png"/>
 
 # 💫 About Me:
